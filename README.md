@@ -1,1 +1,0 @@
-# golopogus.github.io
